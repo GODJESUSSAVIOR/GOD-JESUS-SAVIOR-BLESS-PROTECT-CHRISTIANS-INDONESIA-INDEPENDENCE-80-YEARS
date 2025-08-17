@@ -29,6 +29,7 @@ TUHAN YESUS JURUSELAMAT BERKATI LINDUNGI KRISTEN‚Å∏ INDONESIA MERDEKA 80 TAHUN‚Å
 Minggu 17 Agustus 2025
 
 https://docs.google.com/document/d/1sdBUvegqC5Ztrii3-HEyQWKKo5XIT0IOUQv3_Mmi2jE
- https://joshuaivanministries.blogspot.com/2025/08/deklarasi-indonesia-emas-80-tahun.html
+
+https://joshuaivanministries.blogspot.com/2025/08/deklarasi-indonesia-emas-80-tahun.html
 
 https://youtube.com/watch?v=yMlgd8V7ktU
